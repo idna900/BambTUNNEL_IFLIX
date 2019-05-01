@@ -2,7 +2,7 @@
 
 HTTP TUNNEL INDONESIA
 
-Source Code By Bamb Bamb
+Powered By Bamb Bamb
 
 Url Facebook Saya : https://m.facebook.com/bamb.bamb.16503?refid=7
 
